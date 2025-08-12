@@ -1,5 +1,9 @@
 # 💫 About Me:
-Superação e desafios me motivam, sempre e quando consiga vislumbrar<br>algo real e útil envolvendo o projeto.<br>Quando acontece isso entro em super foco e passo a amar o processo.<br>Comecei na area de tecnologia mais tarde que o comum, más isso é apenas<br>combustível pra estar sempre aprimorando conhecimento habilidades.<br>Valores que me acomanham: Comprometimento, honestidade, lealdade, <br>respeito, criatividade e equilíbrio, entre outros.
+Desafios e oportunidades de superação me motivam, especialmente quando vejo um propósito claro e útil no projeto. Nessas situações, consigo focar profundamente e realmente aproveitar o processo.
+
+Entrei na área de tecnologia um pouco mais tarde do que o habitual, mas isso só reforça minha dedicação em buscar constante aprendizado e evolução.
+
+Carrego comigo valores como comprometimento, honestidade, lealdade, respeito, criatividade e equilíbrio — princípios que busco aplicar tanto no trabalho quanto na vida pessoal.
 
 
 ## 🌐 Socials:
